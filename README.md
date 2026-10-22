@@ -1,2 +1,2 @@
 # UTSpemrogramanmobileaplikasiresepmasakan
-Awas di aolikasinya ada doksli 
+Awas di aplikasinya terdapat ada doksli 
